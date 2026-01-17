@@ -1,6 +1,6 @@
 ㅤㅤㅤ
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤ<img width="654" height="454" alt="image" src="https://github.com/user-attachments/assets/6699cc46-a6bd-4982-8542-74cc519c6ecb" />
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤ<img width="632" height="454" alt="image" src="https://github.com/user-attachments/assets/6699cc46-a6bd-4982-8542-74cc519c6ecb" />
 
 
 
