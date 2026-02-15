@@ -8,7 +8,7 @@
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤelㅤ◡ㅤwensㅤ⌒ㅤsam ㅤ|ㅤmulti ㅤfandomㅤ+ㅤmulti shipperㅤ| disney ㅤworld ㅤaddict
 
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ<img width="300" height="100" alt="image" src="https://github.com/user-attachments/assets/0ed99775-9bc0-447b-819e-0956cb4957c5" /><img width="300" height="100" alt="image" src="https://github.com/user-attachments/assets/0ed99775-9bc0-447b-819e-0956cb4957c5" />
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ<img width="300" height="100" alt="image" src="https://github.com/user-attachments/assets/0ed99775-9bc0-447b-819e-0956cb4957c5" /><img width="300" height="100" alt="image" src="https://github.com/user-attachments/assets/0ed99775-9bc0-447b-819e-0956cb4957c5" />
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤme & jas. (THERE IS NO #JASVEN SHUT UP.)
 
