@@ -10,6 +10,6 @@
 
 <img width="300" height="100" alt="image" src="https://github.com/user-attachments/assets/0ed99775-9bc0-447b-819e-0956cb4957c5" />
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤme & jas. (THERE IS NO #JASVEN SHUT UP.)
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤme & jas. (THERE IS NO #JASVEN SHUT UP.)
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤ<img width="520" height="580" alt="image" src="https://github.com/user-attachments/assets/5f6d419e-d29e-4526-91c1-ffe08066d8a9" />
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ<img width="520" height="580" alt="image" src="https://github.com/user-attachments/assets/5f6d419e-d29e-4526-91c1-ffe08066d8a9" />
