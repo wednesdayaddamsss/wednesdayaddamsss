@@ -21,8 +21,6 @@ If you need to know absolutely anything about me, it would be on my strawpage, o
 
 Also if you haven't seen, my discord is princessg845, or mileven4evr. (sorry if you dont like mileven, I personally like it! All ships are great to me btw, I dont hate.)
 
-https://github.com/taracarpentr
-
 To the lazy people, I will just list everything you need to know about me here so you don't have to go to my other githubs or links. (if you would LIKE to, please follow my other githubs + aomfs, and draw me something pretty / ask me something on my straw! :>)
 
 <img width="749" height="66" alt="image" src="https://github.com/user-attachments/assets/574486e9-a3a3-4032-be8e-4a29795d4644" />
