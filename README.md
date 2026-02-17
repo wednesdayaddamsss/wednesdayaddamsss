@@ -27,9 +27,10 @@ To the lazy people, I will just list everything you need to know about me here s
 
 BYI(?) / about me ::
 
-I am VERY shy when it comes to interacting if you are a new friend, or If I think you're extremely rad.
+I am VERY shy when it comes to interacting if you are a new friend, or If I think you're extremely rad. I am an ISFJ / INFP!! ^_^
 
 Once I get to know you I will say hi whenever you're online, when I see you in general, and I will probably just come up to you to c+h, if that is okay.
 
+If you would ever like, I would love to gift you ponies. I enjoy making other people things, as I believe it is my job to give and care for others! (not religious, I'm justoverly caring lmao)
 
-
+I love having friends around, and cuddling other ponies brings me comfort! (Even if we don't talk while c+h-ing.)
