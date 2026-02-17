@@ -39,3 +39,6 @@ All pronouns except for it/its is perfectly fine with me (He/Him, She/Her, & The
 
 If you are oomfs I actually platonically love you so much (not trying to be weird ok..) gulps
 
+Disney's #1 traveler ok.. disney adult type of gal ok.. yes? ok.. 
+
+SNEAKERNIGHT BY VANESSA HUDGENS (We love you Layla for introducing this to me and Ann 🤍)
