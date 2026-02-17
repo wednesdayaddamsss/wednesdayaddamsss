@@ -34,3 +34,8 @@ Once I get to know you I will say hi whenever you're online, when I see you in g
 If you would ever like, I would love to gift you ponies. I enjoy making other people things, as I believe it is my job to give and care for others! (not religious, I'm justoverly caring lmao)
 
 I love having friends around, and cuddling other ponies brings me comfort! (Even if we don't talk while c+h-ing.)
+
+All pronouns except for it/its is perfectly fine with me (He/Him, She/Her, & They/Them), Though I love using, she/they, as those are my actual pronouns! 
+
+If you are oomfs I actually platonically love you so much (not trying to be weird ok..) gulps
+
