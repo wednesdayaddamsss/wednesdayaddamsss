@@ -7,9 +7,6 @@
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤelㅤ◡ㅤwensㅤ⌒ㅤsam ㅤ|ㅤmulti ㅤfandomㅤ+ㅤmulti shipperㅤ| disney ㅤworld ㅤaddict
 
-
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤ<img width="300" height="100" alt="image" src="https://github.com/user-attachments/assets/0ed99775-9bc0-447b-819e-0956cb4957c5" /><img width="300" height="100" alt="image" src="https://github.com/user-attachments/assets/0ed99775-9bc0-447b-819e-0956cb4957c5" />
-
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤme & jasper ig.. (THERE IS NO #JASVEN SHUT UP.)
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤv<img width="520" height="580" alt="image" src="https://github.com/user-attachments/assets/5f6d419e-d29e-4526-91c1-ffe08066d8a9" />
