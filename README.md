@@ -41,4 +41,7 @@ If you are oomfs I actually platonically love you so much (not trying to be weir
 
 Disney's #1 traveler ok.. disney adult type of gal ok.. yes? ok.. 
 
-SNEAKERNIGHT BY VANESSA HUDGENS (We love you Layla for introducing this to me and Ann 🤍)
+SNEAKERNIGHT BY VANESSA HUDGENS (We love you Layla for introducing this to me and Ann 🤍 LMAOOOOAO)
+
+<img width="99" height="55" alt="image" src="https://github.com/user-attachments/assets/60dcc898-acb8-4d70-84b7-5ee94e5d14aa" /> eggo love is real, yes I'm eleven okay? okay..
+
