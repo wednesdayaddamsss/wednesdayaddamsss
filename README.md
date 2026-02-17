@@ -13,3 +13,16 @@
 
 ㅤ<img width="810" height="30" alt="image" src="https://github.com/user-attachments/assets/a6c8a129-4867-4e0d-b924-e27e236324a3" />
 
+Hey chat.. Im wens or wtv you wanna call me..
+
+Im just adding onto this because I need to update this, also because this is my main and people probably do not go to my alts unless I have the githubs on my ponies.
+
+If you need to know absoluetley anything about me, it would be on my strawpage, one of my other githubs, my pronouns.cc, or my patreon!
+
+Also if you haven't seen, my discord is princessg845, or mileven4evr. (sorry if you dont like mileven, I personally like it! All ships are great to me btw, I dont hate.)
+
+To the lazy people, I will just list everything you need to know about me here so you don't have to go to my other githubs or links. (if you would LIKE to, please follow my other githubs, and draw me something pretty / ask me something on my straw! :>)
+
+<img width="449" height="66" alt="image" src="https://github.com/user-attachments/assets/574486e9-a3a3-4032-be8e-4a29795d4644" />
+
+
