@@ -17,7 +17,7 @@ Hey chat.. Im wens or wtv you wanna call me..
 
 Im just adding onto this because I need to update this, also because this is my main and people probably do not go to my alts unless I have the githubs on my ponies.
 
-If you need to know absoluetley anything about me, it would be on my strawpage, one of my other githubs, my pronouns.cc, or my patreon!
+If you need to know absolutely anything about me, it would be on my strawpage, one of my other githubs, my pronouns.cc, or my patreon!
 
 Also if you haven't seen, my discord is princessg845, or mileven4evr. (sorry if you dont like mileven, I personally like it! All ships are great to me btw, I dont hate.)
 
