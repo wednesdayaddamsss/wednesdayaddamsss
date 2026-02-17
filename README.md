@@ -35,7 +35,7 @@ If you would ever like, I would love to gift you ponies. I enjoy making other pe
 
 I love having friends around, and cuddling other ponies brings me comfort! (Even if we don't talk while c+h-ing.)
 
-All pronouns except for it/its is perfectly fine with me (He/Him, She/Her, & They/Them), Though I love using, she/they, as those are my actual pronouns! 
+All pronouns except for it/its is perfectly fine with me (He/Him, She/Her, & They/Them), Though I love using she/they, as those are my actual pronouns! 
 
 If you are oomfs I actually platonically love you so much (not trying to be weird ok..) gulps
 
