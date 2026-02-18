@@ -27,6 +27,8 @@ To the lazy people, I will just list everything you need to know about me here s
 
 BYI(?) / about me ::
 
+I want to become an actor when I grow up!
+
 I am VERY shy when it comes to interacting if you are a new friend, or If I think you're extremely rad. I am an ISFJ / INFP!! ^_^
 
 Once I get to know you I will say hi whenever you're online, when I see you in general, and I will probably just come up to you to c+h, if that is okay.
