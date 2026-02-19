@@ -47,7 +47,7 @@ SNEAKERNIGHT BY VANESSA HUDGENS (We love you Layla for introducing this to me an
 
 <img width="844" height="24" alt="image" src="https://github.com/user-attachments/assets/2038ba97-b67b-48d0-a72c-8e7ccb711357" />
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤCAN WE ALL PLS SAY HI TO MY SON WILLIAM? OK THANKS!!
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ㅤㅤㅤ ㅤ <img width="636" height="536" alt="image" src="https://github.com/user-attachments/assets/eab3dd44-c8a2-4ee3-b839-10c420d78504" />
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ㅤ <img width="636" height="536" alt="image" src="https://github.com/user-attachments/assets/eab3dd44-c8a2-4ee3-b839-10c420d78504" />
 
 
 STAMPS THAT REMIND ME OF MYSELF!! (things I like, etc.)
