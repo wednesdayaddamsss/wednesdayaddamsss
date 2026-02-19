@@ -46,8 +46,8 @@ Disney's #1 traveler ok.. disney adult type of gal ok.. yes? ok..
 SNEAKERNIGHT BY VANESSA HUDGENS (We love you Layla for introducing this to me and Ann 🤍 LMAOOOOAO)
 
 <img width="844" height="24" alt="image" src="https://github.com/user-attachments/assets/2038ba97-b67b-48d0-a72c-8e7ccb711357" />
-
-can we all pls say hi to my son will <img width="536" height="536" alt="image" src="https://github.com/user-attachments/assets/eab3dd44-c8a2-4ee3-b839-10c420d78504" />
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤCAN WE ALL PLS SAY HI TO MY SON WILLIAM? OK THANKS!!
+<img width="536" height="536" alt="image" src="https://github.com/user-attachments/assets/eab3dd44-c8a2-4ee3-b839-10c420d78504" />
 
 
 STAMPS THAT REMIND ME OF MYSELF!! (things I like, etc.)
