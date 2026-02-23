@@ -19,7 +19,7 @@ Im just adding onto this because I need to update this, also because this is my 
 
 If you need to know absolutely anything about me, it would be on my strawpage, one of my other githubs, my pronouns.cc, or my patreon!
 
-Also if you haven't seen, my discord is princessg845, or mileven4evr. (sorry if you dont like mileven, I personally like it! All ships are great to me btw, I dont hate.)
+Also if you haven't seen, my discord is princessg845, or beepbeepxoxo
 
 To the lazy people, I will just list everything you need to know about me here so you don't have to go to my other githubs or links. (if you would LIKE to, please follow my other githubs + aomfs, and draw me something pretty / ask me something on my straw! :>)
 
