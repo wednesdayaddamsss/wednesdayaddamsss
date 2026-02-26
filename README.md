@@ -17,7 +17,7 @@
 
 Hey chat.. Im wens or wtv you wanna call me..
 
-NOTE: always wednesday and el, sometimes I just change my pfp and things!!
+NOTE: im always wednesday and el, sometimes I just change my pfp and things!!
 
 el is one of my BIGGEST and main kins bonded by unforgettable memories ok.. I AM HER 
 
