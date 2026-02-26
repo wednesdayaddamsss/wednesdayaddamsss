@@ -19,7 +19,7 @@ Hey chat.. Im wens or wtv you wanna call me..
 
 NOTE: always wednesday and el, sometimes I just change my pfp and things!!
 
-el is one of my kins bonded by unforgettable memories ok.. I AM HER 
+el is one of my BIGGEST and main kins bonded by unforgettable memories ok.. I AM HER 
 
 Im just adding onto this because I need to update this, also because this is my main and people probably do not go to my alts unless I have the githubs on my ponies.
 
