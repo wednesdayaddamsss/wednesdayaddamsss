@@ -15,6 +15,8 @@
 
 ㅤ<img width="810" height="30" alt="image" src="https://github.com/user-attachments/assets/a6c8a129-4867-4e0d-b924-e27e236324a3" />
 
+_**[ @herprickedfingerr](https://github.com/herprickedfingerr)**_ = my main alt, please check out and then from there my others!! (NF)
+
 Hey chat.. Im wens or wtv you wanna call me..
 
 NOTE: im always wednesday and el, sometimes I just change my pfp and things!!
