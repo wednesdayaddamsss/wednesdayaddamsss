@@ -1,4 +1,4 @@
-ㅤㅤㅤLINKS!: _[guns.lol](https://guns.lol/schnipperschnapp)_ _[prns.cc](https://pronouns.cc/@wednesdayaddamsss)_ _[patreon](https://www.patreon.com/c/ElevenHopper)_ 
+ㅤㅤㅤLINKS!: _[guns.lol](https://guns.lol/schnipperschnapp)_ _[prns.cc](https://pronouns.cc/@wednesdayaddamsss)_ _[patreon](https://www.patreon.com/c/ElevenHopper)_ _[rando straw](https://missingbyers.straw.page/)_
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ![Image](https://github.com/user-attachments/assets/f54bf481-4e25-4434-b2fa-e3706709c157)
 
