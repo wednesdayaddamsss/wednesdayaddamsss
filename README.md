@@ -9,7 +9,7 @@
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤelㅤ◡ㅤwensㅤ⌒ㅤsam ㅤ|ㅤmulti ㅤfandomㅤ+ㅤmulti shipperㅤ| disney ㅤworld ㅤaddict
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤme & _[J*sp*r](https://github.com/writingnamesinmydeathnote)_ ig.. (THERE IS NO #JASVEN SHUT UP.)
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤme & _[jasper](https://github.com/writingnamesinmydeathnote)_ (jasven isnt real, DNI.)
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤv<img width="520" height="580" alt="image" src="https://github.com/user-attachments/assets/5f6d419e-d29e-4526-91c1-ffe08066d8a9" />
 
