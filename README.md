@@ -1,6 +1,6 @@
 ㅤㅤㅤLINKS!: _[guns.lol](https://guns.lol/schnipperschnapp)_ _[prns.cc](https://pronouns.cc/@wednesdayaddamsss)_ _[patreon](https://www.patreon.com/c/ElevenHopper)_ _[rando straw](https://missingbyers.straw.page/)_
 
-12:50 PM[strange as she appears to be] you werent online on our furry stranger things inflation roleplay discord serverare you ok? thx for the clip babyboo > <
+12:50 PM[strange as she appears to be] you werent online on our furry stranger things inflation roleplay discord serverare you ok?
 
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ**Princess Unicorn Bunny Kitten Angel, Eleven !! ^_^**
