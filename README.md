@@ -11,6 +11,13 @@
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤelㅤ◡ㅤwensㅤ⌒ㅤsam ㅤ|ㅤmulti ㅤfandomㅤ+ㅤmulti shipperㅤ| disney ㅤworld ㅤaddict
 
+
+
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ**### #mecore >_<**
+
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ![Image](https://github.com/user-attachments/assets/ac5ae218-091c-45f7-93a4-bc14ac411e97)
+
+
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤme & [jasper](https://github.com/writingnamesinmydeathnote) I SUPPOSE. (DNI BRO NO JASVEN SHUSH.)
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤv<img width="520" height="580" alt="image" src="https://github.com/user-attachments/assets/5f6d419e-d29e-4526-91c1-ffe08066d8a9" />
