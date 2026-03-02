@@ -13,9 +13,9 @@
 
 
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ**### #mecore >_<**
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ**#mecore >_<**
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ![Image](https://github.com/user-attachments/assets/ac5ae218-091c-45f7-93a4-bc14ac411e97)
+![Image](https://github.com/user-attachments/assets/ac5ae218-091c-45f7-93a4-bc14ac411e97)
 
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤme & [jasper](https://github.com/writingnamesinmydeathnote) I SUPPOSE. (DNI BRO NO JASVEN SHUSH.)
