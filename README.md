@@ -26,6 +26,8 @@ LINKS!: _[guns.lol](https://guns.lol/schnipperschnapp)_ _[prns.cc](https://prono
 
 _**[ @herprickedfingerr](https://github.com/herprickedfingerr)**_ = my main alt, please check out and then from there my others!! (NF)
 
+[KING EV](https://github.com/ThatRoyalBeast) DA BEARSTEST!  (haha get it? no? ok..)
+
 Hey chat.. Im wens or wtv you wanna call me..
 
 NOTE: im always wednesday and el, sometimes I just change my pfp and things!!
