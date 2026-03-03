@@ -1,4 +1,5 @@
-[**@writingnamesinmydeathnote**](https://github.com/writingnamesinmydeathnote) dni ever pls I dont like you or jasven because it isn't real and you're a stinkerbutt go awayㅤㅤㅤㅤㅤLINKS!: _[guns.lol](https://guns.lol/schnipperschnapp)_ _[prns.cc](https://pronouns.cc/@wednesdayaddamsss)_ _[patreon](https://www.patreon.com/c/ElevenHopper)_ _[rando straw](https://missingbyers.straw.page/)_
+[**@writingnamesinmydeathnote**](https://github.com/writingnamesinmydeathnote) dni ever pls I dont like you or jasven because it isn't real and you're a stinkerbutt go awayㅤㅤㅤㅤ
+ㅤLINKS!: _[guns.lol](https://guns.lol/schnipperschnapp)_ _[prns.cc](https://pronouns.cc/@wednesdayaddamsss)_ _[patreon](https://www.patreon.com/c/ElevenHopper)_ _[rando straw](https://missingbyers.straw.page/)_
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ**Princess Unicorn Bunny Kitten Angel, Eleven !! ^_^**
 
