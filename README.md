@@ -30,6 +30,8 @@ _**[ @herprickedfingerr](https://github.com/herprickedfingerr)**_ = my main alt,
 
 Hey chat.. Im wens or wtv you wanna call me..
 
+im young-ish. if you think thats weird or you don't like people under 16 dni (im over 11.), thanks!! Im not weird about my age, and no I don't edate or anything like that. I'm very mature for my age, atleast I think lol.
+
 NOTE: im always wednesday and el, sometimes I just change my pfp and things!!
 
 el is one of my BIGGEST and main kins bonded by unforgettable memories ok.. I AM HER 
