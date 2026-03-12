@@ -1,7 +1,7 @@
 [**@writingnamesinmydeathnote**](https://github.com/writingnamesinmydeathnote) dni ever pls I dont like you or jasven because it isn't real and you're a stinkerbutt go away
 ㅤ
 
-### **DO NOT COPY MY SKINS.**
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ### **DO NOT COPY MY SKINS.**
 
 
 LINKS!: _[ACTUAL straw](https://wenclairparties.straw.page)_ _[guns.lol](https://guns.lol/schnipperschnapp)_ _[prns.](https://en.pronouns.page/@addamsz)_ _[prns.cc](https://pronouns.cc/@wednesdayaddamsss)_ _[patreon](https://www.patreon.com/c/ElevenHopper)_ _[rando straw](https://missingbyers.straw.page/)_
