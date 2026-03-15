@@ -27,7 +27,7 @@ LINKS!: _[ACTUAL straw](https://wenclairparties.straw.page)_ _[guns.lol](https:/
 
 ㅤ<img width="810" height="30" alt="image" src="https://github.com/user-attachments/assets/a6c8a129-4867-4e0d-b924-e27e236324a3" />
 
-_**[ @herprickedfingerr](https://github.com/herprickedfingerr)**_ = my main alt, please check out and then from there my others!! (NF)
+_**[ @herprickedfingerr](https://github.com/herprickedfingerr)**_ = my main alt, also moved everything you need to know onto it.
 
 [KING EV](https://github.com/ThatRoyalBeast) DA BEARSTEST!  (haha get it? no? ok..)
 
