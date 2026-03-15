@@ -8,24 +8,9 @@ _**[ @herprickedfingerr](https://github.com/herprickedfingerr)**_ = my main alt,
 
 LINKS!: _[ACTUAL straw](https://wenclairparties.straw.page)_ _[guns.lol](https://guns.lol/schnipperschnapp)_ _[prns.](https://en.pronouns.page/@addamsz)_ _[prns.cc](https://pronouns.cc/@wednesdayaddamsss)_ _[patreon](https://www.patreon.com/c/ElevenHopper)_ _[rando straw](https://missingbyers.straw.page/)_
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ**Princess Unicorn Bunny Kitten Angel, Eleven !! ^_^**
-
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ![Image](https://github.com/user-attachments/assets/cb3d8271-607f-4d0d-a109-f4e80d3ffa55)
-
-
-
-
-
-
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤelㅤ◡ㅤwensㅤ⌒ㅤsam ㅤ|ㅤmulti ㅤfandomㅤ+ㅤmulti shipperㅤ| disney ㅤworld ㅤaddict
-
-
-
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ#mecore >_<
-
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤ![Image](https://github.com/user-attachments/assets/ac5ae218-091c-45f7-93a4-bc14ac411e97)
 
-
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤelㅤ◡ㅤwensㅤ⌒ㅤsam ㅤ|ㅤmulti ㅤfandomㅤ+ㅤmulti shipperㅤ| disney ㅤworld ㅤaddict
 
 ㅤ<img width="810" height="30" alt="image" src="https://github.com/user-attachments/assets/a6c8a129-4867-4e0d-b924-e27e236324a3" />
 
