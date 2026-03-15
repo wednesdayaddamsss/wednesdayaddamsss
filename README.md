@@ -1,5 +1,6 @@
 [**@writingnamesinmydeathnote**](https://github.com/writingnamesinmydeathnote) dni ever pls I dont like you or jasven because it isn't real and you're a stinkerbutt go away
 ㅤ
+
 _**[ @herprickedfingerr](https://github.com/herprickedfingerr)**_ = my main alt, also moved everything you need to know onto it.
 
 
