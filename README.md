@@ -1,5 +1,7 @@
 [**@writingnamesinmydeathnote**](https://github.com/writingnamesinmydeathnote) dni ever pls I dont like you or jasven because it isn't real and you're a stinkerbutt go away
 ㅤ
+_**[ @herprickedfingerr](https://github.com/herprickedfingerr)**_ = my main alt, also moved everything you need to know onto it.
+
 
 ### **DO NOT COPY MY SKINS.**
 
@@ -26,12 +28,6 @@ LINKS!: _[ACTUAL straw](https://wenclairparties.straw.page)_ _[guns.lol](https:/
 
 
 ㅤ<img width="810" height="30" alt="image" src="https://github.com/user-attachments/assets/a6c8a129-4867-4e0d-b924-e27e236324a3" />
-
-_**[ @herprickedfingerr](https://github.com/herprickedfingerr)**_ = my main alt, also moved everything you need to know onto it.
-
-[KING EV](https://github.com/ThatRoyalBeast) DA BEARSTEST!  (haha get it? no? ok..)
-
-<img width="844" height="24" alt="image" src="https://github.com/user-attachments/assets/2038ba97-b67b-48d0-a72c-8e7ccb711357" />
 
 STAMPS THAT REMIND ME OF MYSELF!! (things I like, etc.)
 
