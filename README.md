@@ -9,7 +9,7 @@ _**[ @herprickedfingerr](https://github.com/herprickedfingerr)**_ = my main alt,
 
 LINKS!: _[ACTUAL straw](https://wenclairparties.straw.page)_ _[guns.lol](https://guns.lol/schnipperschnapp)_ _[prns.](https://en.pronouns.page/@addamsz)_ _[prns.cc](https://pronouns.cc/@wednesdayaddamsss)_ _[patreon](https://www.patreon.com/c/ElevenHopper)_ _[rando straw](https://missingbyers.straw.page/)_
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤ![Image](https://github.com/user-attachments/assets/ac5ae218-091c-45f7-93a4-bc14ac411e97)
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤ![Image](https://github.com/user-attachments/assets/9649bce9-21fd-4137-81eb-1a02c6435a35)
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤelㅤ◡ㅤwensㅤ⌒ㅤsam ㅤ|ㅤmulti ㅤfandomㅤ+ㅤmulti shipperㅤ| disney ㅤworld ㅤaddict
 
