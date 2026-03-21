@@ -15,7 +15,7 @@ LINKS!: _[ACTUAL straw](https://wenclairparties.straw.page)_ _[guns.lol](https:/
 
 ㅤ<img width="810" height="30" alt="image" src="https://github.com/user-attachments/assets/a6c8a129-4867-4e0d-b924-e27e236324a3" />
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤawh man I miss wednesday gc :((
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤawh man I miss wednesday gc :((
 
 STAMPS THAT REMIND ME OF MYSELF!! (things I like, etc.)
 
