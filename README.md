@@ -11,7 +11,7 @@ LINKS!: _[ACTUAL straw](https://wenclairparties.straw.page)_ _[guns.lol](https:/
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ![Image](https://github.com/user-attachments/assets/cad9f87d-e356-4966-94cf-816058e61a5e)
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤ13ㅤʚ𝜚ㅤ ISFJ / INFP|ㅤmulti ㅤfandomㅤ+ㅤmulti shipperㅤ| disney ㅤworld ㅤaddict
+ㅤㅤㅤㅤㅤㅤㅤ13ㅤʚ𝜚ㅤ ISFJ / INFPㅤ|ㅤmulti ㅤfandomㅤ+ㅤmulti shipperㅤ| disney ㅤworld ㅤaddict
 
 ㅤ<img width="810" height="30" alt="image" src="https://github.com/user-attachments/assets/a6c8a129-4867-4e0d-b924-e27e236324a3" />
 
