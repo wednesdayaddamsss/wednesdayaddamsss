@@ -20,7 +20,7 @@ LINKS!: _[ACTUAL straw](https://wenclairparties.straw.page)_ _[guns.lol](https:/
 
 <img width="910" height="56" alt="image" src="https://github.com/user-attachments/assets/674aedbc-098b-460b-8b86-3e8b368cf4af" />
 
-### me & gang (+ olive)ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ![Screenshot_20260321_224611_Pony Town](https://github.com/user-attachments/assets/306ad6e1-a049-4cc1-a924-a96d812196dc)
+### me & gang (+ olive & jas)ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ![Screenshot_20260321_224611_Pony Town](https://github.com/user-attachments/assets/306ad6e1-a049-4cc1-a924-a96d812196dc)
 
 <img width="910" height="52" alt="image" src="https://github.com/user-attachments/assets/a2238fbe-15fc-4b0e-b017-0df78ebcbce1" />
 
