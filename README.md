@@ -16,12 +16,21 @@ LINKS!: _[ACTUAL straw](https://wenclairparties.straw.page)_ _[guns.lol](https:/
 <details>
   <summary><ins>beware</ins></summary>
       <p>im young-ish. if you think thats weird or you don't like people under 16 dni (im over 11.), thanks!! Im not weird about my age, and no I don't edate or anything like that. I'm very mature for my age, atleast I think lol.</p>
-      <p>I am VERY shy when it comes to interacting if you are a new friend, or If I think you're extremely rad. I am an ISFJ / INFP!! ^_^</p>
+      <p>I am VERY shy when it comes to interacting if you are a new friend, or If I think you're extremely rad. I am an ISFJ / INFP. Once I get to know you I will say hi whenever you're online, when I see you in general, and I will probably just come up to you to c+h, if that is okay. Also I love having friends around, and cuddling other ponies brings me comfort! (Even if we don't talk while c+h-ing.)</p>
       <p>All pronouns except for it/its is perfectly fine with me (He/Him, She/Her, & They/Them), Though I love using she/they, as those are my actual pronouns!</p>
       <p>If you are oomfs I actually platonically love you so much (not trying to be weird ok..) gulps</p>
 </details>
   </div>
 
+ <div align="center">
+<details>
+  <summary><ins>additional</ins></summary>
+      <p>my discords are princessg845 & beepbeepxoxo</p>
+      <p>I want to become an actor when I grow up!</p>
+      <p>If you would ever like, I would love to gift you ponies. I enjoy making other people things, as I believe it is my job to give and care for others! (not religious, I'm justoverly caring lmao)</p>
+      <p>Disney's #1 traveler ok.. disney adult type of gal ok.. yes? ok..</p>
+</details>
+  </div>
 ㅤ<img width="810" height="30" alt="image" src="https://github.com/user-attachments/assets/a6c8a129-4867-4e0d-b924-e27e236324a3" />
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤoh hello little bnuuy and what are you doing here next to me & my cleric even??
