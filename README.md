@@ -33,9 +33,6 @@ LINKS!: _[ACTUAL straw](https://wenclairparties.straw.page)_ _[guns.lol](https:/
   </div>
 ㅤ<img width="810" height="30" alt="image" src="https://github.com/user-attachments/assets/a6c8a129-4867-4e0d-b924-e27e236324a3" />
 
-ㅤ<div align="center">ㅤoh hello little bnuuy and what are you doing here next to me & my cleric even??
-<img width="842" height="606" alt="image" src="https://github.com/user-attachments/assets/cb7b18af-de03-4c2a-a9ec-0ced0d31e374" />
-
 <img width="510" height="56" alt="image" src="https://github.com/user-attachments/assets/674aedbc-098b-460b-8b86-3e8b368cf4af" />
 
 ### me & gang (+ olive & jas)ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ<div align="center">ㅤㅤ![Screenshot_20260321_224611_Pony Town](https://github.com/user-attachments/assets/306ad6e1-a049-4cc1-a924-a96d812196dc)
