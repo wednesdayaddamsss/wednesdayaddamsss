@@ -12,6 +12,15 @@ LINKS!: _[ACTUAL straw](https://wenclairparties.straw.page)_ _[guns.lol](https:/
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ![Image](https://github.com/user-attachments/assets/cad9f87d-e356-4966-94cf-816058e61a5e)
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤ13ㅤʚ𝜚ㅤ ISFJ / INFPㅤ|ㅤmulti ㅤfandomㅤ+ㅤmulti shipperㅤ| disney ㅤworld ㅤaddict
+ <div align="center">
+<details>
+  <summary><ins>beware</ins></summary>
+      <p>im young-ish. if you think thats weird or you don't like people under 16 dni (im over 11.), thanks!! Im not weird about my age, and no I don't edate or anything like that. I'm very mature for my age, atleast I think lol.</p>
+      <p>I am VERY shy when it comes to interacting if you are a new friend, or If I think you're extremely rad. I am an ISFJ / INFP!! ^_^</p>
+      <p>All pronouns except for it/its is perfectly fine with me (He/Him, She/Her, & They/Them), Though I love using she/they, as those are my actual pronouns!</p>
+      <p>If you are oomfs I actually platonically love you so much (not trying to be weird ok..) gulps</p>
+</details>
+  </div>
 
 ㅤ<img width="810" height="30" alt="image" src="https://github.com/user-attachments/assets/a6c8a129-4867-4e0d-b924-e27e236324a3" />
 
