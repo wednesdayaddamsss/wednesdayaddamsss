@@ -42,7 +42,7 @@ LINKS!: _[ACTUAL straw](https://wenclairparties.straw.page)_ _[guns.lol](https:/
 
 <img width="910" height="52" alt="image" src="https://github.com/user-attachments/assets/a2238fbe-15fc-4b0e-b017-0df78ebcbce1" />
 
-ㅤ<div align="center">ㅤ<img width="1080" height="590" alt="image" src="https://github.com/user-attachments/assets/9fe50e40-580d-43ca-9496-2c0002c234ac" />
+ㅤ<div align="center">ㅤ<img width="510" height="590" alt="image" src="https://github.com/user-attachments/assets/9fe50e40-580d-43ca-9496-2c0002c234ac" />
 
 STAMPS THAT REMIND ME OF MYSELF!! (things I like, etc.)
 
