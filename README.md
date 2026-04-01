@@ -1,7 +1,7 @@
 [**@writingnamesinmydeathnote**](https://github.com/writingnamesinmydeathnote) dni stinkerbutt you piss me off shut up lad
 ㅤ
 
-_**[ @herprickedfingerr](https://github.com/herprickedfingerr)**_ = my main alt, also moved everything you need to know onto it.
+_**[ tyummy](https://github.com/tarasyummy)**_ = my main alt, also moved everything you need to know onto it.
 
 
 ### **DO NOT COPY MY SKINS.**
