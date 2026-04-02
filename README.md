@@ -35,7 +35,7 @@ LINKS!: _[ACTUAL straw](https://wenclairparties.straw.page)_ _[guns.lol](https:/
    <div align="center">
 <details>
   <summary><ins>kinlist</ins></summary>
-      <p>wednesday addams, mckenzie cara fox, eleven jane hopper, frankie stein, austin moon, liv rooney, marisa miller, seacat, addison wells, max goof</p>
+      <p>wednesday addams, mckenzie cara fox, eleven jane hopper, frankie stein, austin moon, liv rooney, seacat, marisa miller, addison wells, max goof</p>
       <p>richie tozier, lady (LATT), lucas sinclair, neighthan rot, willa lykensen, apple white, & tori vega</p>
 </details>
   </div>
