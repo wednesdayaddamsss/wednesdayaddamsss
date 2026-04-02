@@ -31,6 +31,15 @@ LINKS!: _[ACTUAL straw](https://wenclairparties.straw.page)_ _[guns.lol](https:/
       <p>my discords are princessg845 & beepbeepxoxo</p>
 </details>
   </div>
+
+   <div align="center">
+<details>
+  <summary><ins>kinlist</ins></summary>
+      <p>wednesday addams, mckenzie cara fox, eleven jane hopper, frankie stein, austin moon, liv rooney, marisa miller, seacat, addison wells, max goof</p>
+      <p>richie tozier, lady (LATT), lucas sinclair, neighthan rot, willa lykensen, apple white, & tori vega</p>
+</details>
+  </div>
+  
 ㅤ<img width="810" height="30" alt="image" src="https://github.com/user-attachments/assets/a6c8a129-4867-4e0d-b924-e27e236324a3" />
 
 ### me & gang (+ olive & jas)ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ<div align="center">ㅤㅤ![Screenshot_20260321_224611_Pony Town](https://github.com/user-attachments/assets/306ad6e1-a049-4cc1-a924-a96d812196dc)
