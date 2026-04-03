@@ -26,9 +26,9 @@ LINKS!: _[ACTUAL straw](https://wenclairparties.straw.page)_ _[guns.lol](https:/
 <details>
   <summary><ins>additional</ins></summary>
       <p>Disney's #1 traveler ok.. disney adult type of gal ok.. yes? ok..</p>
-      <p>I want to become an actor and art teacher when I grow up!</p>
-      <p>If you would ever like, I would love to gift you ponies. I enjoy making other people things, as I believe it is my job to give and care for others! (not religious, I'm justoverly caring lmao)</p>
-      <p>my discords are princessg845 & beepbeepxoxo</p>
+      <p>main 3 fandoms; disney musicals / disney, stranger things, & my pride</p>
+      <p>If you would ever like, I would love to gift you ponies</p>
+      <p>my discords are princessg845 & teenbeachmovle</p>
 </details>
   </div>
 
