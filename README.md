@@ -26,7 +26,7 @@ LINKS!: _[ACTUAL straw](https://wenclairparties.straw.page)_ _[guns.lol](https:/
 <details>
   <summary><ins>additional</ins></summary>
       <p>Disney's #1 traveler ok.. disney adult type of gal ok.. yes? ok..</p>
-      <p>main 3 fandoms; disney musicals / disney, stranger things, & monster high</p>
+      <p>some fandoms; wednesday, disney musicals / disney, stranger things, monster high, wolfwalkers, fnaf, vr games, my pride, rudolph, IT, etc</p>
       <p>If you would ever like, I would love to gift you ponies</p>
       <p>my discords are princessg845 & teenbeachmovle</p>
 </details>
