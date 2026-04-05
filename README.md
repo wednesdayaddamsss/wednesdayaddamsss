@@ -9,6 +9,8 @@ _**[ tyummy](https://github.com/tarasyummy)**_ = my main alt hi im tyummy
 
 LINKS!: _[ACTUAL straw](https://wenclairparties.straw.page)_ _[guns.lol](https://guns.lol/schnipperschnapp)_ _[prns.](https://en.pronouns.page/@addamsz)_ _[prns.cc](https://pronouns.cc/@wednesdayaddamsss)_ _[patreon](https://www.patreon.com/c/ElevenHopper)_ _[rando straw](https://missingbyers.straw.page/)_
 
+ㅤ<div align="center">ㅤwensㅤaustinㅤsalem (sam)ㅤelㅤmack
+
 ㅤ<div align="center">ㅤ![Image](https://github.com/user-attachments/assets/cad9f87d-e356-4966-94cf-816058e61a5e)
 
 ㅤ<div align="center">ㅤ13ㅤʚ𝜚ㅤ ISFJ / INFPㅤ|ㅤmulti ㅤfandomㅤ+ㅤmulti shipperㅤ| disney ㅤworld ㅤaddict
