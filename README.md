@@ -51,14 +51,6 @@ LINKS!: _[ACTUAL straw](https://wenclairparties.straw.page)_ _[guns.lol](https:/
 
 ㅤ<div align="center">ㅤㅤ<img width="436" height="436" alt="image" src="https://github.com/user-attachments/assets/5bbaeabc-6f62-4716-825b-6deb8c9a9109" />
 
-   <div align="center">
-<details>
-  <summary><ins>my other f/o(s)</ins></summary>
-      <p><img width="400" height="400" alt="image" src="https://github.com/user-attachments/assets/a7306577-9a64-4ed6-bcd2-c2be2cb2f0bb" /> <img width="400" height="400" alt="image" src="https://github.com/user-attachments/assets/a6545c8a-097f-4699-9932-73abc0d75170" />
-</p>
-</details>
-  </div>
-
 <div align="center">
 <details>
   <summary><ins>my stamps</ins></summary>
