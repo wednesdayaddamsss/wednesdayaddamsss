@@ -53,9 +53,8 @@ LINKS!: _[ACTUAL straw](https://wenclairparties.straw.page)_ _[guns.lol](https:/
 
    <div align="center">
 <details>
-  <summary><ins>my other f/o PLUS my familial yume</ins></summary>
-      <p><img width="400" height="400" alt="image" src="https://github.com/user-attachments/assets/a7306577-9a64-4ed6-bcd2-c2be2cb2f0bb" /> <img width="400" height="400" alt="image" src="https://github.com/user-attachments/assets/1abbba53-c7e1-4084-8a05-4e9753be1a0a" />
-
+  <summary><ins>my other f/o(s)</ins></summary>
+      <p><img width="400" height="400" alt="image" src="https://github.com/user-attachments/assets/a7306577-9a64-4ed6-bcd2-c2be2cb2f0bb" /> <img width="400" height="400" alt="image" src="https://github.com/user-attachments/assets/a6545c8a-097f-4699-9932-73abc0d75170" />
 </p>
 </details>
   </div>
