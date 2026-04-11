@@ -41,6 +41,9 @@ LINKS!: [rentry](https://rentry.org/wednesdayaddamsz) [rentry #2](https://rentry
       <p>max goof, richie tozier, lady (LATT), lucas sinclair, neighthan rot, willa lykensen, apple white, & tori vega</p>
 </details>
   </div>
+
+   <div align="center">  <img width="300" height="300" alt="573954067-75ca9de1-862d-424f-89ac-de9b977f7600" src="https://github.com/user-attachments/assets/908c9909-ef8c-45a8-aeb3-318747985036" />
+
   
 ㅤ<img width="810" height="30" alt="image" src="https://github.com/user-attachments/assets/a6c8a129-4867-4e0d-b924-e27e236324a3" />
 
