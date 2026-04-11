@@ -50,7 +50,7 @@ LINKS!: [rentry](https://rentry.org/wednesdayaddamsz) [rentry #2](https://rentry
       <p>olive ; they are an honest 2 god sorcerer dont mess with their whimsy or else<p>
       <p>king evaen ; THE royal beast cosplayer on ponytown, remember to not copy him or ANY of my friends skins, they worked hard to make them!!<p>
       <p>my least favorite person on my friends list… but he BEGGED to be here so yeah.. JASPER. ; I hate him sm and his name isnt even jaskirkper?? Its just jasper lol. hes larping dont believe a frickin word he says.. Infact can everybody int and JUST tell him to shut up? Thanks!! ^_^<p>
-       <p>@'s ; [will / jane / nancy](https://github.com/wiIIthewise), [rat](patreon.com/The_Good_Witch), [olive](https://github.com/microwavedolive), [king evaen](https://github.com/ThatRoyalBeast), [(this is why hes last bc he stinks) j*sp*r](https://github.com/writingnamesinmydeathnote)</p>
+       <p>@'s ; [will / jane / nancy](https://github.com/wiIIthewise) , [rat](patreon.com/The_Good_Witch) , [olive](https://github.com/microwavedolive) , [king evaen](https://github.com/ThatRoyalBeast) , [(this is why hes last bc he stinks) j*sp*r](https://github.com/writingnamesinmydeathnote)</p>
 </details>
   </div>
 
