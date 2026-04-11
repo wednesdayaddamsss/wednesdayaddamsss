@@ -44,7 +44,7 @@ LINKS!: [rentry](https://rentry.org/wednesdayaddamsz) [rentry #2](https://rentry
 
 <div align="center">
 <details>
-  <summary><ins>about my close frens</ins></summary>
+  <summary><ins>about my squad</ins></summary>
       <p>will / jane / nancy ; she likes bnuuys, animals, and is a very high will da wise kin.. whenever we talk im just like awww *ohio cuteness speed insert*</p>
       <p>rat ; she is rat like literally a rat.. she likes cheese & crackers, but she bites! *ohio speed petting rat*</p>
       <p>olive ; they are an honest 2 god sorcerer dont mess with their whimsy or else<p>
