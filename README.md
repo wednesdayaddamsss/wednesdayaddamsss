@@ -42,12 +42,8 @@ LINKS!: [rentry](https://rentry.org/wednesdayaddamsz) [rentry #2](https://rentry
 </details>
   </div>
   
-<div align="center">
- <details>
-<summary><ins>me & gang (+ olive, ev & jas)</ins></summary>
-      <p>![Screenshot_20260321_224611_Pony Town](https://github.com/user-attachments/assets/306ad6e1-a049-4cc1-a924-a96d812196dc)<p>
-<details>
-   </div>
+ㅤ<div align="center">ㅤ<img width="423" height="423" alt="image" src="https://github.com/user-attachments/assets/fb206f51-3982-43b4-b8ab-a63be82ab440" />
+
  
 <div align="center">
 <details>
