@@ -11,7 +11,7 @@ LINKS!: [rentry](https://rentry.org/wednesdayaddamsz) [rentry #2](https://rentry
 
 ㅤ<div align="center">ㅤwensㅤaustinㅤsalem (sam)ㅤelㅤmack
 
-ㅤ<div align="center">ㅤ![Image](https://github.com/user-attachments/assets/cad9f87d-e356-4966-94cf-816058e61a5e)
+ㅤ<div align="center">ㅤ![Image](https://github.com/user-attachments/assets/2ffd6687-6a9f-4bd8-9f4d-443292f94e04)
 
 ㅤ<div align="center">ㅤ13ㅤʚ𝜚ㅤ ISFJ / INFPㅤ|ㅤmulti ㅤfandomㅤ+ㅤmulti shipperㅤ| disney ㅤworld ㅤaddict
  <div align="center">
