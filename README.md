@@ -52,14 +52,14 @@ LINKS!: [rentry](https://rentry.org/wednesdayaddamsz) [rentry #2](https://rentry
       <p>my least favorite person on my friends list… but he BEGGED to be here so yeah.. JASPER. ; I hate him sm and his name isnt even jaskirkper?? Its just jasper lol. hes larping dont believe a frickin word he says.. Infact can everybody int and JUST tell him to shut up? Thanks!! ^_^<p>
 </details>
   </div>
-
+  
+### <summary><ins>me & gang (+ olive, ev & jas)</ins></summary>ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ<div align="center">
+ㅤㅤ<p>![Screenshot_20260321_224611_Pony Town](https://github.com/user-attachments/assets/306ad6e1-a049-4cc1-a924-a96d812196dc)<p>
 
    <div align="center">  <img width="300" height="300" alt="573954067-75ca9de1-862d-424f-89ac-de9b977f7600" src="https://github.com/user-attachments/assets/908c9909-ef8c-45a8-aeb3-318747985036" />
 
   
 ㅤ<img width="810" height="30" alt="image" src="https://github.com/user-attachments/assets/a6c8a129-4867-4e0d-b924-e27e236324a3" />
-
-### me & gang (+ olive, ev & jas)ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ<div align="center">ㅤㅤ![Screenshot_20260321_224611_Pony Town](https://github.com/user-attachments/assets/306ad6e1-a049-4cc1-a924-a96d812196dc)
 
 ㅤ<div align="center">ㅤᓚᘏᗢ my ns f/o
 
