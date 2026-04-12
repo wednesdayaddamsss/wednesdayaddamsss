@@ -1,7 +1,7 @@
 [**@writingnamesinmydeathnote**](https://github.com/writingnamesinmydeathnote) dni stinkerbutt you piss me off shut up lad
 ㅤ
 
-_**[ tyummy](https://github.com/tarasyummy)**_ = my main alt hi im tyummy
+_**[ tyummy](https://github.com/tarasyummy)**_ = my main alt hi im tyummy ㅤㅤㅤ𑣲 My hopper.. [@HeftyHoldmUp](https://github.com/HeftyHoldmUp)
 
 
 ### **DO NOT COPY MY SKINS.**
