@@ -37,8 +37,8 @@ LINKS!: [rentry](https://rentry.org/wednesdayaddamsz) [rentry #2](https://rentry
    <div align="center">
 <details>
   <summary><ins>kinlist</ins></summary>
-      <p>wednesday addams, mckenzie cara fox, eleven jane hopper, frankie stein, austin moon, liv rooney, seacat, marisa miller, addison wells</p>
-      <p>max goof, richie tozier, lady (LATT), lucas sinclair, neighthan rot, willa lykensen, apple white, & tori vega</p>
+      <p>‿‿ 𓈒 wednesday addams, mckenzie cara fox, eleven jane hopper, frankie stein, austin moon, liv rooney, seacat, marisa miller, addison wells</p>
+      <p>max goof, richie tozier, lady (LATT), lucas sinclair, neighthan rot, willa lykensen, apple white, & tori vega ৎ</p>
 </details>
   </div>
   
