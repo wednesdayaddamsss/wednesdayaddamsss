@@ -47,27 +47,3 @@ LINKS!: [rentry](https://rentry.org/wednesdayaddamsz) [rentry #2](https://rentry
 </details>
   </div>
   
-ㅤ<div align="center">ㅤ<img width="423" height="423" alt="image" src="https://github.com/user-attachments/assets/fb206f51-3982-43b4-b8ab-a63be82ab440" />
-
- 
-<div align="center">
-<details>
-  <summary><ins>about da gang</ins></summary>
-      <p>will / jane / nancy ; she likes bnuuys, animals, and is a very high will da wise kin.. whenever we talk im just like awww *ohio cuteness speed insert*</p>
-      <p>rat ; she is rat like literally a rat.. she likes cheese & crackers, but she bites! *ohio speed petting rat*</p>
-      <p>olive ; they are an honest 2 god sorcerer dont mess with their whimsy or else<p>
-      <p>king evaen ; THE royal beast cosplayer on ponytown, remember to not copy him or ANY of my friends skins, they worked hard to make them!!<p>
-      <p>my least favorite person on my friends list… but he BEGGED to be here so yeah.. JASPER. ; I hate him sm and his name isnt even jaskirkper?? Its just jasper lol. hes larping dont believe a frickin word he says.. Infact can everybody int and JUST tell him to shut up? Thanks!! ^_^<p>
-</details>
-  </div>
-
-   <div align="center">  <img width="300" height="300" alt="573954067-75ca9de1-862d-424f-89ac-de9b977f7600" src="https://github.com/user-attachments/assets/908c9909-ef8c-45a8-aeb3-318747985036" />
-
-
-<div align="center">
-<details>
-  <summary><ins>my stamps</ins></summary>
-      <p><img width="99" height="55" alt="image" src="https://github.com/user-attachments/assets/60dcc898-acb8-4d70-84b7-5ee94e5d14aa" /> <img width="101" height="57" alt="image" src="https://github.com/user-attachments/assets/0da69ef9-29d8-42af-98d8-21abffdde77d" /> <img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/8dac834f-af49-448a-866e-ee924f012255" /> <img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/595e9c07-89b3-4705-b9bf-51f3d60b0af3" /> <img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/179ae121-7a43-4cee-8288-cddf10e2e63f" /> <img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/b4e9ce7d-8e16-4276-9ec8-faf2243a5622" /> <img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/eebf00ff-a342-44a6-b1f4-659d38d5bc0f" /> <img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/fed6c311-70e1-43bc-bd24-bd5b3dd6923b" /> <img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/32a53307-6396-4556-a49f-81641015769f" /> <img width="101" height="58" alt="image" src="https://github.com/user-attachments/assets/c5809c9a-9834-42c8-9988-182fb782b8dc" /></p>
-     
-</details>
-  </div>
