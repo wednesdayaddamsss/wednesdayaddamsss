@@ -26,6 +26,7 @@ LINKS!: [rentry](https://rentry.org/wednesdayaddamsz) [rentry #2](https://rentry
       <p>I am VERY shy when it comes to interacting if you are a new friend, or If I think you're extremely tubular. Once I get to know you I will say hi whenever you're online, when I see you in general, and I will probably just come up to you to c+h, if that is okay. Also I love having friends around, and cuddling other ponies brings me comfort! (Even if we don't talk while c+h-ing.)</p>
       <p>All pronouns except for it/its is perfectly fine with me (He/Him, She/Her, & They/Them), Though I love using she/they, as those are my actual pronouns!</p>
       <p>fictionkin, therian, and furry.</p>
+       <p>please do not copy anything I do, like my names, skins, or fandoms. (Fandom copying example; saying you hate a fandom or have weird opinions about it then suddenly when I have things on my profile or say things about it you suddenly start paying attention to it / liking it.) Any of this makes me uncomfortable, just plainly dni. (if you do this)</p>
 </details>
   </div>
 
