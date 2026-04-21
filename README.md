@@ -11,7 +11,8 @@ LINKS!: [rentry](https://rentry.org/wednesdayaddamsz) [rentry #2](https://rentry
 
 ㅤ<div align="center">ㅤwensㅤaustinㅤsalem (sam)ㅤelㅤmack
 
-ㅤ<div align="center">ㅤ<img width="505" height="505" alt="image" src="https://github.com/user-attachments/assets/896f7594-c32c-4e12-b874-9c75d81bb89d" />
+ㅤ<div align="center">ㅤ<img width="736" height="414" alt="image" src="https://github.com/user-attachments/assets/f18e48c3-adf4-4d62-90d4-bf7f7993abaa" />
+
 
 
 
