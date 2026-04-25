@@ -9,7 +9,7 @@
 
 LINKS!: [rentry](https://rentry.org/wednesdayaddamsz) [rentry #2](https://rentry.org/tarasdiary) [guns.lol](https://guns.lol/schnipperschnapp) [ACTUAL straw](https://wenclairparties.straw.page) [prns.](https://en.pronouns.page/@addamsz) [prns.cc](https://pronouns.cc/@lelasfavegirl) [patreon](https://www.patreon.com/c/ElevenHopper) [rando straw](https://missingbyers.straw.page/)
 
-ㅤ<div align="center">ㅤwensㅤaustinㅤsalem (sam)ㅤelㅤmack
+ㅤ<div align="center">ㅤwensㅤaustin
 
 ㅤ<div align="center">ㅤ<img width="400" height="314" alt="tumblr_f17ee394d3c19c3c95467fb76866b1e3_20951da9_400" src="https://github.com/user-attachments/assets/75500293-5706-43b2-8793-9fb7167954e0" />
 
