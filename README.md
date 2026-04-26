@@ -1,8 +1,7 @@
 <div align="center">ㅤhello im wensㅤᵒʳㅤaustin
 
  ㅤ<div align="center">ㅤ<img width="517" height="432" alt="mJwsphAodSXZnqCRKBbJ" src="https://github.com/user-attachments/assets/deb9a9f5-c0a8-4092-a0fd-8cb393cd1bc0" />
-
-ㅤ<div align="center">ㅤㅤ<img width="40" height="40" alt="01KG53QCK5VRBWBJJQW50ZHWVC-flag" src="https://github.com/user-attachments/assets/8318a484-d6ea-4f9d-ab80-a62152b3feaa" />ㅤISFJ / INFPㅤ|ㅤmulti ㅤfandomㅤ+ㅤmulti shipperㅤ|ㅤdisney ㅤworld ㅤaddict
+ISFJ / INFPㅤ|ㅤmulti ㅤfandomㅤ+ㅤmulti shipperㅤ|ㅤdisney ㅤworld ㅤaddict
  
   <div align="center">
 <details>
