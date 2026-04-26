@@ -1,5 +1,4 @@
 <div align="center">ㅤhello im wensㅤᵒʳㅤaustin
-
  ㅤ<div align="center">ㅤ<img width="517" height="432" alt="mJwsphAodSXZnqCRKBbJ" src="https://github.com/user-attachments/assets/deb9a9f5-c0a8-4092-a0fd-8cb393cd1bc0" />
 ISFJ / INFPㅤ|ㅤmulti ㅤfandomㅤ+ㅤmulti shipperㅤ|ㅤdisney ㅤworld ㅤaddict
  
