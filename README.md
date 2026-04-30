@@ -1,4 +1,7 @@
    <div align="center">
+
+<img width="1719" height="441" alt="download (53)" src="https://github.com/user-attachments/assets/d7470b16-058b-454b-b9e2-85b469be08bc" />
+
     
  hello im wensㅤᵒʳㅤaustin look at my [alt](https://github.com/tarasyummy) & [rentry](https://rentry.org/elevjanehopper)!
   ㅤ<img width="517" height="432" alt="mJwsphAodSXZnqCRKBbJ" src="https://github.com/user-attachments/assets/deb9a9f5-c0a8-4092-a0fd-8cb393cd1bc0" />
