@@ -1,8 +1,6 @@
    <div align="center">
 
-<img width="1736" height="182" alt="download (55)" src="https://github.com/user-attachments/assets/71f3c454-1f79-434c-8d47-cd28f8ec8367" />
-
-
+<img width="1719" height="441" alt="download (55)" src="https://github.com/user-attachments/assets/8163a7bf-508e-4fde-9cd6-b53210fbbe02" />
     
  hello im wensㅤᵒʳㅤaustin look at my [alt](https://github.com/tarasyummy) & [rentry](https://rentry.org/elevjanehopper)!
   ㅤ<img width="1200" height="600" alt="image" src="https://github.com/user-attachments/assets/40be2073-6536-4bfc-a73e-36a6489b18a6" />
@@ -10,4 +8,4 @@
 
    <div align="center"> ㅤISFJ / INFP mulitshipper & multifandom disney world addict
       
-<img width="1720" height="370" alt="download (54)" src="https://github.com/user-attachments/assets/b45da7fb-1781-4b39-8c82-f4d6d639d1e1" />
+<img width="1720" height="370" alt="download (56)" src="https://github.com/user-attachments/assets/4e7b5134-5979-4484-b5b1-5909894d1571" />
