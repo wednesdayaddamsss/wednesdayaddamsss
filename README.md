@@ -1,6 +1,6 @@
    <div align="center">
 
-<img width="1749" height="441" alt="image" src="https://github.com/user-attachments/assets/aadcc54a-df94-4aa5-90de-f0a9520fa6f4" />
+<img width="1720" height="370" alt="image" src="https://github.com/user-attachments/assets/aadcc54a-df94-4aa5-90de-f0a9520fa6f4" />
 
     
  hello im wensㅤᵒʳㅤaustin look at my [alt](https://github.com/tarasyummy) & [rentry](https://rentry.org/elevjanehopper)!
