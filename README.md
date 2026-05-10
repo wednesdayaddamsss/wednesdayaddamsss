@@ -9,5 +9,6 @@
 
    <div align="center"> ㅤISFJ / INFP mulitshipper & multifandom disney world addict
       
-<img width="1720" height="370" alt="image" src="https://github.com/user-attachments/assets/b572e8a1-8ac6-44f5-8cd6-d13c3aef38d6" />
+<img width="1720" height="370" alt="image" src="https://github.com/user-attachments/assets/a5bebde7-57d4-4296-8f55-d728c4bc4827" />
+
 
