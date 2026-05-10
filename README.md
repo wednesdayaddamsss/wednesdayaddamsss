@@ -1,7 +1,6 @@
    <div align="center">
 
-<img width="1719" height="441" alt="image" src="https://github.com/user-attachments/assets/ac7bd4ff-e199-4ada-a348-4acef79f0e17" />
-
+<img width="1719" height="441" alt="image" src="https://github.com/user-attachments/assets/3f535198-b238-45e2-b0dc-2a55d1569bff" />
 
 
  hello im wensㅤᵒʳㅤaustin look at my [alt](https://github.com/tarasyummy) & [rentry](https://rentry.org/elevjanehopper)!
@@ -10,4 +9,5 @@
 
    <div align="center"> ㅤISFJ / INFP mulitshipper & multifandom disney world addict
       
-<img width="1720" height="370" alt="image" src="https://github.com/user-attachments/assets/fa16ee5d-437a-45c1-ad2a-428025d17c99" />
+<img width="1720" height="370" alt="image" src="https://github.com/user-attachments/assets/b572e8a1-8ac6-44f5-8cd6-d13c3aef38d6" />
+
