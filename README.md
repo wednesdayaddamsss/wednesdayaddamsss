@@ -2,8 +2,6 @@
 
 
 
-
-
   im wensㅤᵒʳㅤaustin look at my [alt](https://github.com/tarasyummy) & [rentry](https://rentry.org/elevjanehopper).
   
   ㅤ<img width="500" height="322" alt="image" src="https://github.com/user-attachments/assets/7ecaac11-a533-4fe5-a3a5-303cd5213065" />
