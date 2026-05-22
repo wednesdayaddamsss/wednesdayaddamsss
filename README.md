@@ -3,7 +3,8 @@
 
   im wensㅤᵒʳㅤaustin look at my [alt](https://github.com/tarasyummy) & [rentry](https://rentry.org/elevjanehopper).
   
-  ㅤ<img width="505" height="405" alt="image" src="https://github.com/user-attachments/assets/100360b4-377b-476d-86db-7543d87d6205" />
+  ㅤ<img width="505" height="405" alt="image" src="https://github.com/user-attachments/assets/ff1cc69f-069e-43ad-963b-bad6d7885d3a" />
+
 
 
 THE wednesday ptown player & kinnie !
