@@ -3,7 +3,8 @@
 
   im wensㅤᵒʳㅤaustin look at my [alt](https://github.com/tarasyummy) & [rentry](https://rentry.org/elevjanehopper).
   
-  ㅤ<img width="505" height="305" alt="image" src="https://github.com/user-attachments/assets/dffe4f7d-666a-4dfb-b366-1e338614c53c" />
+  ㅤ<img width="505" height="405" alt="image" src="https://github.com/user-attachments/assets/ddab9136-cc72-4712-86f8-2cd91092def1" />
+
 
 
 
