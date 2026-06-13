@@ -18,3 +18,5 @@
     <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=31klfolo4stxuwbqu5jhqjvhrw4e&cover_image=true&theme=novatorem&show_offline=true&background_color=121212&interchange=false&profanity=false&hide_remaster=false&bar_color=d78ea0&bar_color_cover=false">
   </a>
 </p>
+
+<img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/f9070e0a-ecba-4298-980b-ab742b851d49" />
