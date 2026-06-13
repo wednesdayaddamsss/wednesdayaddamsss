@@ -17,6 +17,6 @@ ISFJ / INFP mulitshipper & multif★ndom disney world addict
 
 <p align="center">
   <a href="https://github.com/kittinan/spotify-github-profile">
-    <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=31klfolo4stxuwbqu5jhqjvhrw4e&cover_image=true&theme=novatorem&show_offline=false&background_color=b19b5d&interchange=false&profanity=false&hide_remaster=false&bar_color=cb6543&bar_color_cover=false">
+    <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=31klfolo4stxuwbqu5jhqjvhrw4e&cover_image=true&theme=novatorem&show_offline=true&background_color=121212&interchange=false&profanity=false&hide_remaster=false&bar_color=d78ea0&bar_color_cover=false">
   </a>
 </p>
