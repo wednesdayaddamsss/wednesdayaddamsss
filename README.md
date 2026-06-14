@@ -3,9 +3,7 @@
 
   im wensㅤᵒʳㅤaustin look at my [alt](https://github.com/tarasyummy) & [rentry](https://rentry.org/elevjanehopper).
   
-  ㅤ<img width="505" height="405" alt="image" src="https://github.com/user-attachments/assets/ab14801c-09ff-4d90-b8ef-d8a75e64098c" />
-
-
+  ㅤ<img width="505" height="405" alt="Wenclair Icons (1)" src="https://github.com/user-attachments/assets/81547660-75d2-4275-ab31-f15689f64253" />
 
 
 
