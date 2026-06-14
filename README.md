@@ -9,7 +9,7 @@
 
 
 
-[🎁rentry](https://rentry.org/-wednesdayy) [str★wp](https://rosslynch.straw.page) [guns](https://guns.lol/witchinghr) [matching <3](https://rentry.org/diaryofbella) [guns 2](https://guns.lol/schnipperschnapp) [prns](https://en.pronouns.page/@oxygvn) [prns.cc](https://pronouns.cc/@mmk) [roblox](https://www.roblox.com/users/2260621859/profile)
+[🎁rentry](https://rentry.org/-wednesdayy) [str★wp](https://rosslynch.straw.page) [guns](https://guns.lol/witchinghr) [matching <3](https://rentry.org/diaryofbella) [guns 2](https://guns.lol/wenciair) [prns](https://en.pronouns.page/@oxygvn) [prns.cc](https://pronouns.cc/@mmk) [roblox](https://www.roblox.com/users/2260621859/profile)
 
 
 <p align="center">
