@@ -1,7 +1,7 @@
    <div align="center">
 
 
-  im wensㅤᵒʳㅤaustin look at my [alt](https://github.com/tarasyummy) & [rentry](https://rentry.org/elevjanehopper).
+  im wensㅤᵒʳㅤaustin look at my [guns](https://guns.lol/witchinghr) for info
   
   ㅤ<img width="505" height="505" alt="image" src="https://github.com/user-attachments/assets/ca915e8a-5e38-4230-adff-8bfcbd13c21c" />
 
@@ -11,7 +11,7 @@
 
 
 
-[🎁rentry](https://rentry.org/-wednesdayy) [str★wp](https://rosslynch.straw.page) [guns](https://guns.lol/witchinghr) [matching <3](https://rentry.org/diaryofbella) [guns 2](https://guns.lol/wenciair) [prns](https://en.pronouns.page/@oxygvn) [prns.cc](https://pronouns.cc/@mmk) [roblox](https://www.roblox.com/users/2260621859/profile)
+[🎁rentry](https://rentry.org/-wednesdayy) [matching <3](https://rentry.org/diaryofbella) [alt](https://github.com/tarasyummy)
 
 
 <p align="center">
