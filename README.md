@@ -5,7 +5,8 @@
   
  <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Chelsea+Market&duration=4986&pause=566&color=C81F5F&center=true&vCenter=true&width=435&lines=and+I+feel+like+I+might+throw+up;left+hook%2C+right+punch+to+the+gut;youre+so+so+pretty+boy;Im+paranoid%2C+I+made+you+up" alt="Typing SVG" /></a>
   
-  ㅤ<img width="505" height="305" alt="image" src="https://github.com/user-attachments/assets/b37a1a3a-56df-44c4-a8a0-ce612dcb66e2" />
+  ㅤ<img width="505" height="405" alt="image" src="https://github.com/user-attachments/assets/1a64a8ef-de85-4f8d-9606-b1d7dbea7390" />
+
 
 
 
