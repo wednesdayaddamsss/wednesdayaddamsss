@@ -23,7 +23,3 @@
     <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=31klfolo4stxuwbqu5jhqjvhrw4e&cover_image=true&theme=novatorem&show_offline=true&background_color=121212&interchange=false&profanity=false&hide_remaster=false&bar_color=000000&bar_color_cover=false">
   </a>
 </p>
-
-<a href="https://data-card-for-spotify.herokuapp.com/card?user_id=31klfolo4stxuwbqu5jhqjvhrw4e">
-  <img src="https://data-card-for-spotify.herokuapp.com/api/card?user_id=31klfolo4stxuwbqu5jhqjvhrw4e" alt="Data Card for Spotify">
-</a>
