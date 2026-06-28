@@ -3,7 +3,7 @@
 
   im wensㅤᵒʳㅤaustin look at my [guns](https://guns.lol/witchinghr) for info
   
-<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Chelsea+Market&duration=4986&pause=558&color=37668f&center=true&vCenter=true&width=435&lines=I+think+that+you're+killer+.+.+.;with+your+floppy+hair+!;take+me+out+2+dinner+.+.+.;you+know+you+can+take+me+anywhere+!;%26+all+of+my+girlfriends+roll+their+eyes;%26+tell+me+to+take+it+slow+this+time+.+.;but+I+got+a+feeling%2C+wounds+are+healing;talking+on+the+phone;I+know+everybody+changes;but+I+hope+that+we+don't+.+.;carve+our+names+in2+the+carseat+leather;u+%2B+me+%3D+a+%3C3+forever+!!" alt="Typing SVG" /></a>
+<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Chelsea+Market&duration=4986&pause=558&color=37668F&center=true&vCenter=true&width=435&lines=fall+out%2C+fight+all+the+way+down;just+the+way+they+want+you+to;knocked+down;burned+out+'til+there's+no+room+to+feel;to+feel+like+me+-+the+enemy.;but+what+if+I'm+not..+the+enemy%3F;where's+the+line%3F+where's+the+line%3F;%22somewhere+under+the+blood%22;say+you+won't+change+your+mind;as+they+break+everything+you+love;tell+me+when+you've+had+enough+;tell+me+when+you've+had+enough.;never+mind+the+chemicals.;breathe+in%2C+breathe+out%2C+it's+all+a+lie;(choose+your+own+reality)" alt="Typing SVG" /></a>
   
   ㅤ<img width="505" height="405" alt="image" src="https://github.com/user-attachments/assets/0eda6d7e-9192-4276-84cb-49138e122535" />
 
