@@ -14,7 +14,7 @@
 
 
 
-୨ৎ atleast ill have an imaginative death.
+୨ৎ saw EVANESCENCE 6 . 26 . 26 !!!!! seeing other artists soon
 
 
 
