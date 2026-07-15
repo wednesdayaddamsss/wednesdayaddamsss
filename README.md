@@ -3,9 +3,9 @@
 
   im wensㅤᵒʳㅤaustin look at my [guns](https://guns.lol/witchinghr) for info
   
-<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Chelsea+Market&duration=4986&pause=558&color=84C0CF&width=435&lines=...no..no..no..;justin%2C+please%2C+please%2C+please..!!;you+can't+leave+me+here..;please+remember..;I-Im+alex+im+your+little+sister...!!;I..+I+taught+you+and+I+tease+you..-;+and+I+make+your+life+miserable%2C+but+you+love+me+anyway!!;you're+everything+i've+ever+wanted+to+be+..!;im+jealous+of+how..+how+smart+you+are..;a-and+how+kind%2C+and+how+nice..;p-please+don't+leave+me+here.;please." alt="Typing SVG" /></a>
+<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Chelsea+Market&duration=4986&pause=558&color=E5E9E1&center=true&vCenter=true&width=435&lines=..no..no..no..;justin%2C+please%2C+please%2C+please..!!;you+can't+leave+me+here..;please+remember..;I-im+alex%2C+im+your+little+sister...!!;I..+I+taught+you%2C+and+I+tease+you..;and+I+make+your+life+miserable;..but+you+love+me+anyway!!;you're+everything+i've+ever+wanted+to+be..;Im+jealous+of+how..+how+smart+you+are..;a-and+how+kind+and+nice..;p-please+dont+leave+me+here.;%F0%9D%98%B1%F0%9D%98%AD%F0%9D%98%A6%F0%9D%98%A2%F0%9D%98%B4%F0%9D%98%A6." alt="Typing SVG" /></a>
 
-  ㅤ<img width="736" height="414" alt="Darling Charming (Ever After High)" src="https://github.com/user-attachments/assets/0c7131d3-3136-4e50-81ab-e590b7b098c6" />
+  ㅤ<img width="500" height="249" alt="Image" src="https://github.com/user-attachments/assets/5306cb93-6e54-4a92-afe2-3e9938d5c41a" />
 
 
 
