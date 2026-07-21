@@ -5,7 +5,7 @@
   
 <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Chelsea+Market&duration=4986&pause=558&color=E5E9E1&center=true&vCenter=true&width=435&lines=..no..no..no..;justin%2C+please%2C+please%2C+please..!!;you+can't+leave+me+here..;please+remember..;I-im+alex%2C+im+your+little+sister...!!;I..+I+taught+you%2C+and+I+tease+you..;and+I+make+your+life+miserable;..but+you+love+me+anyway!!;you're+everything+i've+ever+wanted+to+be..;Im+jealous+of+how..+how+smart+you+are..;a-and+how+kind+and+nice..;p-please+dont+leave+me+here.;%F0%9D%98%B1%F0%9D%98%AD%F0%9D%98%A6%F0%9D%98%A2%F0%9D%98%B4%F0%9D%98%A6." alt="Typing SVG" /></a>
 
-  ㅤ<img width="505" height="505" alt="image" src="https://github.com/user-attachments/assets/63152a47-09f8-459c-af06-4c2b2a3a8a29" />
+  ㅤ<img width="505" height="605" alt="image" src="https://github.com/user-attachments/assets/e96080c2-aa29-4017-bcbe-0e7dcd3fd44c" />
 
 
 
