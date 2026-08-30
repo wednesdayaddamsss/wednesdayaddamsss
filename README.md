@@ -28,7 +28,7 @@
 
 
 
-[🎁rentry](https://rentry.org/-wednesdayy) [matching <3](https://rentry.org/diaryofbella) [alt](https://github.com/tarasyummy)
+[🎁rentry](https://rentry.org/-wednesdayy) [prns](https://en.pronouns.page/@oxygvn) [alt](https://github.com/tarasyummy)
 
 
 <p align="center">
