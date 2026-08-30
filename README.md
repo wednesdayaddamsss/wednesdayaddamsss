@@ -3,7 +3,7 @@
 
   im wensㅤᵒʳㅤaustin look at my [guns](https://guns.lol/witchinghr) for info
   
-<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Chelsea+Market&duration=4986&pause=558&color=E5E9E1&center=true&vCenter=true&width=435&lines=..no..no..no..;justin%2C+please%2C+please%2C+please..!!;you+can't+leave+me+here..;please+remember..;I-im+alex%2C+im+your+little+sister...!!;I..+I+taught+you%2C+and+I+tease+you..;and+I+make+your+life+miserable;..but+you+love+me+anyway!!;you're+everything+i've+ever+wanted+to+be..;Im+jealous+of+how..+how+smart+you+are..;a-and+how+kind+and+nice..;p-please+dont+leave+me+here.;%F0%9D%98%B1%F0%9D%98%AD%F0%9D%98%A6%F0%9D%98%A2%F0%9D%98%B4%F0%9D%98%A6." alt="Typing SVG" /></a>
+<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Chelsea+Market&duration=4986&pause=1&color=F7F7F7&center=true&vCenter=true&width=435&lines=hands+on+me;wanna+feel+my+denim;is+it+bad+I+might+just+let+'em%3F" alt="Typing SVG" /></a>
 
   ㅤ<img width="317" height="606" alt="Untitled45_20260830125846" src="https://github.com/user-attachments/assets/20efb660-fd7c-4585-a79e-fed782e82fce" />
 
