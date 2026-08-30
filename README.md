@@ -3,7 +3,7 @@
 
   im wensㅤᵒʳㅤaustin look at my [guns](https://guns.lol/witchinghr) for info
   
-<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Chelsea+Market&duration=4986&pause=1&color=F7F7F7&center=true&vCenter=true&width=435&lines=hands+on+me;wanna+feel+my+denim;is+it+bad+I+might+just+let+'em%3F" alt="Typing SVG" /></a>
+<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Chelsea+Market&duration=4986&pause=1&color=F7F7F7&center=true&vCenter=true&width=435&lines=hands+on+me;wanna+feel+my+denim;is+it+bad+that+I+might+just+let+'em%3F" alt="Typing SVG" /></a>
 
   ㅤ<img width="317" height="606" alt="Untitled45_20260830125846" src="https://github.com/user-attachments/assets/20efb660-fd7c-4585-a79e-fed782e82fce" />
 
