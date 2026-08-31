@@ -3,7 +3,7 @@
 <img width="800" height="380" alt="IMG_0671" src="https://github.com/user-attachments/assets/dd6414e1-62e4-4a30-83d5-e4e4885b8205" />
 
 
-  im wensㅤᵒʳㅤaustin look at my [p.cc](https://pronouns.cc/@mmk) for info
+  look at [p.cc](https://pronouns.cc/@mmk) for info, & sign [my ata](https://oxygvn.atabook.org) !!
 
   <img width="712" height="418" alt="Screenshot_31-8-2026_161437_www instagram com" src="https://github.com/user-attachments/assets/ee562906-7e0e-4f0c-86eb-b2e69f2cea45" />
 
@@ -16,9 +16,13 @@
 
 
 [𝑔uns.lol](https://github.com/tarasyummy)⠀⠀⠀⠀ 𓏵 ⠀⠀⠀⠀[𝓅rns.](https://en.pronouns.page/@oxygvn)⠀⠀⠀⠀ 𓏵 ⠀⠀⠀⠀[🎁𝓇entry](https://rentry.org/-wednesdayy)
+⠀
 
+⠀
 
-[𝓈traw](https://rosslynch.straw.page/)⠀⠀⠀⠀ 𓏵 ⠀⠀⠀⠀[𝓈potify](https://open.spotify.com/user/31klfolo4stxuwbqu5jhqjvhrw4e)
+⠀
+⠀
+[𝓈traw](https://rosslynch.straw.page/)⠀⠀⠀⠀ 𓏵 ⠀⠀⠀⠀[𝓈potify](https://open.spotify.com/user/31klfolo4stxuwbqu5jhqjvhrw4e)⠀⠀⠀⠀ 𓏵 ⠀⠀⠀⠀[𝓉iktok](https://www.tiktok.com/@fawndofkiara)⠀⠀⠀⠀ 𓏵 ⠀⠀⠀⠀[𝓇oblox](https://www.roblox.com/users/2260621859/profile)
 
 <p align="center">
   <a href="https://github.com/kittinan/spotify-github-profile">
