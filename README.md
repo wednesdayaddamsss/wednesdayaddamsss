@@ -32,4 +32,4 @@
 
 
 
-<img width="800" height="380" alt="IMG_0672" src="https://github.com/user-attachments/assets/8a5f8011-0e47-42c1-966e-30a72af08e20" />
+<img width="800" height="80" alt="IMG_0672" src="https://github.com/user-attachments/assets/8a5f8011-0e47-42c1-966e-30a72af08e20" />
