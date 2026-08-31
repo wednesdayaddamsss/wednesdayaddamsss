@@ -1,7 +1,7 @@
    <div align="center">
 
 
-  im wensㅤᵒʳㅤaustin look at my [guns](https://guns.lol/witchinghr) for info
+  im wensㅤᵒʳㅤaustin look at my [p.cc](https://pronouns.cc/@mmk) for info
   
 <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Chelsea+Market&duration=4986&pause=1&color=F7F7F7&center=true&vCenter=true&width=435&lines=hands+on+me;wanna+feel+my+denim;is+it+bad+that+I+might+just+let+'em%3F" alt="Typing SVG" /></a>
 
