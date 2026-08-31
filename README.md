@@ -8,7 +8,7 @@
   <img width="712" height="418" alt="Screenshot_31-8-2026_161437_www instagram com" src="https://github.com/user-attachments/assets/ee562906-7e0e-4f0c-86eb-b2e69f2cea45" />
 
 
-<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Chelsea+Market&duration=4986&pause=1&color=F7F7F7&center=true&vCenter=true&width=435&lines=hands+on+me;wanna+feel+my+denim;is+it+bad+that+I+might+just+let+'em%3F" alt="Typing SVG" /></a>
+<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Dancing+Script&size=30&pause=1000&color=F7F2E0&center=true&vCenter=true&width=444&height=54&lines=Shall+I+give+her+a+facilier+family+special%3F" alt="Typing SVG" /></a>
 
 <img width="1280" height="119" alt="image-2024-05-24-133653261" src="https://github.com/user-attachments/assets/25821c5e-615f-413f-9bda-a22003c3ffc2" />
 
