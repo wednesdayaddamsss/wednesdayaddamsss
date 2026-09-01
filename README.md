@@ -15,7 +15,7 @@
 
 
 
-[𝑔uns.lol](https://github.com/tarasyummy)⠀⠀⠀⠀ 𓏵 ⠀⠀⠀⠀[𝓅rns.](https://en.pronouns.page/@oxygvn)⠀⠀⠀⠀ 𓏵 ⠀⠀⠀⠀[🎁𝓇entry](https://rentry.org/-wednesdayy)
+[𝒶lt](https://github.com/tarasyummy)⠀⠀⠀⠀ 𓏵 ⠀⠀⠀⠀[𝓅rns.](https://en.pronouns.page/@oxygvn)⠀⠀⠀⠀ 𓏵 ⠀⠀⠀⠀[🎁𝓇entry](https://rentry.org/-wednesdayy)
 ⠀
 
 ⠀
