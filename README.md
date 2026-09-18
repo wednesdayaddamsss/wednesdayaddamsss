@@ -1,16 +1,21 @@
    <div align="center">
       
-<img width="800" height="380" alt="IMG_0671" src="https://github.com/user-attachments/assets/dd6414e1-62e4-4a30-83d5-e4e4885b8205" />
+<img width="2000" height="304" alt="tumblr_7f94263f48d45719c1c624a7e4747e02_13985fd6_2048" src="https://github.com/user-attachments/assets/b3557a67-fca3-452a-9def-fce8f984626f" />
 
 
-  look at [p.cc](https://pronouns.cc/@mmk) for info, & sign [my ata](https://oxygvn.atabook.org) !!
-
-  <img width="712" height="418" alt="Screenshot_31-8-2026_161437_www instagram com" src="https://github.com/user-attachments/assets/ee562906-7e0e-4f0c-86eb-b2e69f2cea45" />
 
 
-<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Dancing+Script&size=30&pause=1000&color=F7F2E0&center=true&vCenter=true&width=444&height=54&lines=Shall+I+give+her+a+facilier+family+special%3F" alt="Typing SVG" /></a>
+  look at [p.cc](https://pronouns.cc/@mmk) for info, & sign [my ata](https://oxygvn.atabook.org).
 
-<img width="1280" height="119" alt="image-2024-05-24-133653261" src="https://github.com/user-attachments/assets/25821c5e-615f-413f-9bda-a22003c3ffc2" />
+  <img width="712" height="418" alt="image" src="https://github.com/user-attachments/assets/ebd16436-10fb-4e91-b7ca-19f4fd6ca896" />
+
+
+
+<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Dancing+Script&size=30&pause=1000&color=bbbbbb&center=true&vCenter=true&width=444&height=54&lines=Where+he's+gone+god+only+knows%3F" alt="Typing SVG" /></a>
+
+<img width="1199" height="228" alt="80c7bb77bcb81ee12af4a14feb62e0c8-Photoroom" src="https://github.com/user-attachments/assets/7237e0d1-386e-4bbb-97df-8d57458fb138" />
+
+
 
 
 
@@ -35,4 +40,5 @@
 
 
 
-<img width="800" height="80" alt="IMG_0672" src="https://github.com/user-attachments/assets/8a5f8011-0e47-42c1-966e-30a72af08e20" />
+<img width="2000" height="304" alt="tumblr_0ae06eb406ebb93010f2af2a5f402b33_59ca35a7_2048" src="https://github.com/user-attachments/assets/0ba4a4a9-d8e9-41cd-a2e8-54660112efb0" />
+
