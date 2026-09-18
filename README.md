@@ -11,7 +11,7 @@
 
 
 
-<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Dancing+Script&size=30&pause=1000&color=bbbbbb&center=true&vCenter=true&width=444&height=54&lines=Where+he's+gone+god+only+knows%3F" alt="Typing SVG" /></a>
+<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Dancing+Script&size=36&pause=1000&color=BBBBBB&center=true&vCenter=true&width=435&lines=Hate+that+I+made+you+love+me" alt="Typing SVG" /></a>
 
 <img width="1199" height="228" alt="80c7bb77bcb81ee12af4a14feb62e0c8-Photoroom" src="https://github.com/user-attachments/assets/7237e0d1-386e-4bbb-97df-8d57458fb138" />
 
