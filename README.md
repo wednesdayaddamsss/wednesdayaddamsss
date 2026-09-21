@@ -14,7 +14,7 @@
 
 
 
-<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Dancing+Script&size=31&pause=100&color=B81B1B&center=true&vCenter=true&width=435&lines=%E2%80%9CLet%E2%80%99s+live+forever%2C+Colby%2C%E2%80%9D+;+Sam%E2%80%99s+voice+was+soft+;as+he+took+a+step+backward+along+the+bridge%2C+;a+deadly+smile+appearing+on+his+face." alt="Typing SVG" /></a>
+<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Dancing+Script&size=31&pause=100&color=851414&center=true&vCenter=true&width=435&lines=%E2%80%9CLet%E2%80%99s+live+forever%2C+Colby%2C%E2%80%9D+;+Sam%E2%80%99s+voice+was+soft+;as+he+took+a+step+backward+along+the+bridge%2C+;a+deadly+smile+appearing+on+his+face." alt="Typing SVG" /></a>
 
 <img width="1199" height="228" alt="image" src="https://github.com/user-attachments/assets/96207392-47c9-42a5-9510-10c4c13a03a2" />
 
