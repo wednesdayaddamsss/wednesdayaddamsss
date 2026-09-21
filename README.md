@@ -23,12 +23,28 @@
 [𝒶lt](https://github.com/tarasyummy)⠀⠀⠀⠀ 𓏵 ⠀⠀⠀⠀[𝓅rns.](https://en.pronouns.page/@oxygvn)⠀⠀⠀⠀ 𓏵 ⠀⠀⠀⠀[🎁𝓇entry](https://rentry.org/-wednesdayy)
 ⠀
 
-⠀
+⠀ <div align="center">
+<details>
+  <summary><ins>fanfic</ins></summary>
+      <p>☽ Fang ☾ [Howl sequel]
+         
+Return to the world of werewolves, witches, werecoyotes, and necromancers as new threats appear from the depths of Los Angels for the Alpha, his mate, and the Trap House Pack. 
+When the local news channel airs footage of Amber Scholl (close friend of Alpha Colby's), murdering two bar owners, the truth about werewolves and supernatural is threatened to be revealed. The video becomes an instant trending video on YouTube, and Amber goes on the run. While at their cabin during the full moon, Amber finds Colby and the pack, telling them that she was framed by werewolf hunters and seeks their help. Colby, of course, brings her into the pack to protect her, but the Alpha's Omega quickly becomes jealous at what is happening between his mate and their new Omega member. 
+But, there are far greater threats to Colby than just a viral video, harboring a murderer, a jealous mate, and werewolf hunters. Rival Alpha Jake Paul and his Omega Tana want to challenge Colby for his status as the L.A. Alpha and they will do anything to get their way: turning Trap House Pack human members and kidnapping the most important person in Colby's life.
 
-⠀
+by xthewhiteravenx on tumblr.</p>
+</details>
+  </div>
 
 
 
+ 
+
+ 
+
+
+
+ 
 ⠀
 [𝓈traw](https://rosslynch.straw.page/)⠀⠀⠀⠀ 𓏵 ⠀⠀⠀⠀[𝓈potify](https://open.spotify.com/user/31klfolo4stxuwbqu5jhqjvhrw4e)⠀⠀⠀⠀ 𓏵 ⠀⠀⠀⠀[𝓉iktok](https://www.tiktok.com/@fawndofkiara)⠀⠀⠀⠀ 𓏵 ⠀⠀⠀⠀[𝓇oblox](https://www.roblox.com/users/2260621859/profile)
 
