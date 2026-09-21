@@ -1,19 +1,22 @@
    <div align="center">
       
-<img width="2000" height="304" alt="tumblr_7f94263f48d45719c1c624a7e4747e02_13985fd6_2048" src="https://github.com/user-attachments/assets/b3557a67-fca3-452a-9def-fce8f984626f" />
+<img width="2000" height="304
+" alt="image" src="https://github.com/user-attachments/assets/aa4ee437-51e6-4727-ad0b-89da33b6b8a7" />
+
 
 
 
 
   look at [p.cc](https://pronouns.cc/@mmk) for info, & sign [my ata](https://oxygvn.atabook.org).
 
-  <img width="712" height="418" alt="image" src="https://github.com/user-attachments/assets/ebd16436-10fb-4e91-b7ca-19f4fd6ca896" />
+  <img width="900" height="400" alt="tumblr_cf5b5ec659c07003bd0c2b716479fb66_7e85f32c_400" src="https://github.com/user-attachments/assets/83565248-55e1-4572-9b77-1402a918640e" />
+
 
 
 
 <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Dancing+Script&size=36&pause=1000&color=BBBBBB&center=true&vCenter=true&width=435&lines=Hate+that+I+made+you+love+me" alt="Typing SVG" /></a>
 
-<img width="1199" height="228" alt="80c7bb77bcb81ee12af4a14feb62e0c8-Photoroom" src="https://github.com/user-attachments/assets/7237e0d1-386e-4bbb-97df-8d57458fb138" />
+<img width="1199" height="228" alt="image" src="https://github.com/user-attachments/assets/96207392-47c9-42a5-9510-10c4c13a03a2" />
 
 
 
@@ -56,5 +59,6 @@ by xthewhiteravenx on tumblr.</p>
 
 
 
-<img width="2000" height="304" alt="tumblr_0ae06eb406ebb93010f2af2a5f402b33_59ca35a7_2048" src="https://github.com/user-attachments/assets/0ba4a4a9-d8e9-41cd-a2e8-54660112efb0" />
+<img width="2000" height="304" alt="image" src="https://github.com/user-attachments/assets/9a9ba34d-2bcf-46a3-99cd-4327ff77556c" />
+
 
