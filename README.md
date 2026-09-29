@@ -14,7 +14,7 @@
 
 
 
-<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Dancing+Script&size=36&duration=4994&pause=1&color=801E1E&width=435&lines=love+is+a+drug+that+I+cant+deny;Im+your+dream+girl;but+you're+not+my+type" alt="Typing SVG" /></a>
+<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Dancing+Script&size=36&duration=4994&pause=1&color=801E1E&center=true&vCenter=true&width=435&lines=love+is+a+drug+that+I+cant+deny;Im+your+dream+girl;but+you're+not+my+type" alt="Typing SVG" /></a>
 
 <img width="1199" height="228" alt="image" src="https://github.com/user-attachments/assets/96207392-47c9-42a5-9510-10c4c13a03a2" />
 
