@@ -1,22 +1,25 @@
    <div align="center">
       
-<img width="2000" height="304
-" alt="image" src="https://github.com/user-attachments/assets/aa4ee437-51e6-4727-ad0b-89da33b6b8a7" />
+<img width="957" height="194" alt="image" src="https://github.com/user-attachments/assets/91ef299c-e4cc-4ffe-948f-6af5b768ef6e" />
+
 
 
 
 
 
   look at [p.cc](https://pronouns.cc/@mmk) for info, & sign [my ata](https://oxygvn.atabook.org).
-
-  <img width="900" height="400" alt="tumblr_cf5b5ec659c07003bd0c2b716479fb66_7e85f32c_400" src="https://github.com/user-attachments/assets/83565248-55e1-4572-9b77-1402a918640e" />
-
-
+  
+<img width="900" height="400" alt="tumblr_d603bb14ad4db734eb6155afb77e472c_274a884b_400" src="https://github.com/user-attachments/assets/f2223499-121b-4e0e-a5fe-7c8b9a702f89" />
 
 
-<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Dancing+Script&size=36&duration=4994&pause=1&color=801E1E&center=true&vCenter=true&width=435&lines=love+is+a+drug+that+I+cant+deny;Im+your+dream+girl;but+you're+not+my+type" alt="Typing SVG" /></a>
 
-<img width="1199" height="228" alt="image" src="https://github.com/user-attachments/assets/96207392-47c9-42a5-9510-10c4c13a03a2" />
+
+
+<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Dancing+Script&size=36&duration=4994&pause=1&color=7a6454&center=true&vCenter=true&width=435&lines=I+regret+you" alt="Typing SVG" /></a>
+
+<img width="900" height="82" alt="image" src="https://github.com/user-attachments/assets/d7460976-a66f-49da-983a-4200fe242aaa" />
+
+
 
 
 
@@ -26,18 +29,8 @@
 [𝒶lt](https://github.com/tarasyummy)⠀⠀⠀⠀ 𓏵 ⠀⠀⠀⠀[𝓅rns.](https://en.pronouns.page/@oxygvn)⠀⠀⠀⠀ 𓏵 ⠀⠀⠀⠀[🎁𝓇entry](https://rentry.org/-wednesdayy)
 ⠀
 
-⠀ <div align="center">
-<details>
-  <summary><ins>fanfic</ins></summary>
-      <p>☽ Fang ☾ [Howl sequel]
-         
-Return to the world of werewolves, witches, werecoyotes, and necromancers as new threats appear from the depths of Los Angels for the Alpha, his mate, and the Trap House Pack. 
-When the local news channel airs footage of Amber Scholl (close friend of Alpha Colby's), murdering two bar owners, the truth about werewolves and supernatural is threatened to be revealed. The video becomes an instant trending video on YouTube, and Amber goes on the run. While at their cabin during the full moon, Amber finds Colby and the pack, telling them that she was framed by werewolf hunters and seeks their help. Colby, of course, brings her into the pack to protect her, but the Alpha's Omega quickly becomes jealous at what is happening between his mate and their new Omega member. 
-But, there are far greater threats to Colby than just a viral video, harboring a murderer, a jealous mate, and werewolf hunters. Rival Alpha Jake Paul and his Omega Tana want to challenge Colby for his status as the L.A. Alpha and they will do anything to get their way: turning Trap House Pack human members and kidnapping the most important person in Colby's life.
+⠀ ─ ཐི ⋅ ♰ ⋅ ཋྀ ─
 
-by xthewhiteravenx on tumblr.</p>
-</details>
-  </div>
 
 
 
@@ -59,6 +52,8 @@ by xthewhiteravenx on tumblr.</p>
 
 
 
-<img width="2000" height="304" alt="image" src="https://github.com/user-attachments/assets/9a9ba34d-2bcf-46a3-99cd-4327ff77556c" />
+<img width="957" height="194" alt="image" src="https://github.com/user-attachments/assets/368982a0-b04f-4543-9ff0-c0928e5318ae" />
+
+
 
 
